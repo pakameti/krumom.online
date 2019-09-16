@@ -1,0 +1,2 @@
+# krumom.online
+EDUCATION
